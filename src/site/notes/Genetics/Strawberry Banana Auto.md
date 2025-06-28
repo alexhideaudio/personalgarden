@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/genetics/strawberry-banana-auto/","tags":["evergreen"],"created":"2025-06-25T19:25:54.000+04:00","updated":"2025-06-28T06:54:41.744+04:00"}
+{"dg-publish":true,"permalink":"/genetics/strawberry-banana-auto/","tags":["evergreen"],"created":"2025-06-25T19:25:54.000+04:00","updated":"2025-06-28T06:57:59.189+04:00"}
 ---
 
 # Description
@@ -9,6 +9,7 @@
 >- **Strawberry Banana Smoothie.** Bold strawnana terps make for the most mouth-watering extracts. 
 >- **One of the biggest autos out there.** Impeccably selected genes result in an autoflower that grows around 150 cm.
 >- **A different taste in every puff.** Expect strawberry and banana flavors with sweet, earthy and bubblegum undertones that will keep you guessing!
+
 With up to 27% THC, Strawberry Banana Auto is one of the most THC-rich strains to hit the market lately, this colossal autoflower grows up to 150cm and produces massive yields of up to 600gr/m2. An excellent strain for those looking for potent autoflowers that deliver both in quality and quantity. Expect an extremely sweet and fruity terpene profile with an obvious Strawberry and Banana aroma that comes hand-in-hand with a strong body high mixed with a cerebral high that boosts creativity; a strain that will surprise you with powerful yet well-balanced Indica and Sativa effects.
 ## Bud description
 The buds grow thick and slightly elongated with a light-green color and thin bright yellowish-orange hairs and dark-green leaves coming out of them; Expect super swollen calyxes that give the buds a distinct spiky look. Thanks to the outrageous trichome production the buds end up looking like it’s been snowing in the grow tent for days, and upon harvest they’ll reek of a delicious mix of freshly harvested strawberries with a background of ripe bananas, making it a marvelous choice for extractors and hash makers who need a trichome powerhouse to take their products to the next level.
